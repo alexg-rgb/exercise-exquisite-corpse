@@ -1,1 +1,1 @@
-# exercise-exquisite-corpse
+# Life story
